@@ -8,6 +8,12 @@ Co-Founder & Managing Member of [Pásalo Group](https://pasalogroup.com/)©:
 
 Producer of [Pásalo Podcast](https://pasalopodcast.com/) a production of Pásalo Studio™ by Pásalo Group©.
 
+Cybersecurity Analyst at the US-DoD
+
+Former Development Lead at Univ. of Puerto Rico ata Bayamón's Information Systems Office
+
+For more details visit my LinkedIn profile [/benitezpaganr](https://www.linkedin.com/in/benitezpaganr/)
+
 
 
 <!--
