@@ -3,8 +3,7 @@
 ### A little about me...
 I am a Computer Scientist, Cybersecurity Enthusiast, and avid beach-goer.
 
-Co-Founder & Managing Member of [Pásalo Group](https://pasalogroup.com/)©:
-- GitHub: [@PasaloGroup](https://github.com/PasaloGroup)
+Co-Founder & Managing Member of [Pásalo Group](https://pasalogroup.com/)©
 
 Producer of [Pásalo Podcast](https://pasalopodcast.com/) a production of Pásalo Studio™ by Pásalo Group©.
 
