@@ -9,7 +9,7 @@ Producer of [Pásalo Podcast](https://pasalopodcast.com/) a production of Pásal
 
 Cybersecurity Analyst at the US-DoD
 
-Former Development Lead at Univ. of Puerto Rico ata Bayamón's Information Systems Office
+Former Development Lead at Univ. of Puerto Rico at Bayamón's Information Systems Office
 
 For more details visit my LinkedIn profile [/benitezpaganr](https://www.linkedin.com/in/benitezpaganr/)
 
