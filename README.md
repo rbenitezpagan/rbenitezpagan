@@ -1,7 +1,7 @@
 ## Hi there 👋 welcome to my profile!
 
 ### A little about me...
-I am a Computer Scientist, Cybersecurity Enthusiast, and avid beach-goer.
+I am a Computer Scientist, Tech Advisor, Cybersecurity Enthusiast, and avid beach-goer.
 
 Co-Founder & Managing Member of [Pásalo Group](https://pasalogroup.com/)©
 
