@@ -7,7 +7,9 @@ Co-Founder & Managing Member of [Pásalo Group](https://pasalogroup.com/)©
 
 Producer of [Pásalo Podcast](https://pasalopodcast.com/) a production of Pásalo Studio™ by Pásalo Group©.
 
-Cybersecurity Analyst at the US-DoD
+Consultant at Univ. of Puerto Rico at Bayamón's Information Systems Office
+
+Former Cybersecurity Analyst at the US-DoD
 
 Former Development Lead at Univ. of Puerto Rico at Bayamón's Information Systems Office
 
